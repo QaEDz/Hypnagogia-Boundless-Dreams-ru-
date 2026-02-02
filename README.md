@@ -30,7 +30,7 @@
 
 <br>
 <hr>
-Руководство в стиме: https://steamcommunity.com/id/slovvdancinginthedark/
+Руководство в стиме: [https://steamcommunity.com/id/slovvdancinginthedark/](https://steamcommunity.com/sharedfiles/filedetails/?id=3658971527)
 <hr>
 <div align="center">
 
