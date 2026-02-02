@@ -30,7 +30,7 @@
 
 <br>
 <hr>
-Руководство в стиме:
+Руководство в [стиме](https://steamcommunity.com/sharedfiles/filedetails/?id=3658971527) 
 <hr>
 <div align="center">
 
